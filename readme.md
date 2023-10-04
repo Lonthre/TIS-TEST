@@ -13,7 +13,6 @@ kolko kamenov mnisi prekladaju...
 Nas tim tvoria clenovia:
 
 1. Ema Adamová
-2. Marianna Kvasňovská
-3.
-4.
-
+2. Michal Kubirita
+3. Anna Lenhardtová
+4. Marianna Kvasňovská
